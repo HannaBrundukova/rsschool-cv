@@ -20,3 +20,16 @@
 
 ### Education 
 Gomel State University (Faculty of Biology) 2011-2016
+ ### Work Experience
+ - 2016 - 2021 chemistry and biology teacher at school
+ - 2021-2021 laboratory assistant for chemical and biological analysis in production
+ - 2022 - present LLC "Kidskey" - customer service specialist
+
+### Skills
+- Learning ability
+- Communication skills
+- Stress resistance
+- Attention to detail
+- Teamwork 
+
+
