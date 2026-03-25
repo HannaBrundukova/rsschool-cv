@@ -9,7 +9,7 @@
 - Location: Gomel, Belarus
 
 ### About me 
-
+I'm 32 years old and love learning new things and reading books. My favorite author is Terry Pratchett. I have a Sphynx cat.
 
 
 ### Languages
